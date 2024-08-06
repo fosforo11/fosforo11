@@ -10,4 +10,4 @@
 
 jose.ferreira.silva10@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/TP6qnyGR3ycAAAAC/bluelock-isagi.gif)
+![](https://media1.tenor.com/m/3qa6q0GCp-oAAAAC/rikka.gif)
