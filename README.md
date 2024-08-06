@@ -9,3 +9,5 @@
 ## Você pode entrar em contato comigo
 
 jose.ferreira.silva10@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/TP6qnyGR3ycAAAAC/bluelock-isagi.gif)
