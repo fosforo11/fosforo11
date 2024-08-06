@@ -1,3 +1,3 @@
 ## Boas vindas ao meu perfil 👋
 
--Meu nome é José
+- Meu nome é José
